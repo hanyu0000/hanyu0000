@@ -1,4 +1,4 @@
-### Hello hello !我是HanYu <ha ha> 👋
+### Hello hello !我是HanYu👋
 
 ![图片](https://github.com/hanyu0000/hanyu0000/assets/149314153/8a75f630-22b1-4959-9802-dae138a8ef08)
 
